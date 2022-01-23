@@ -1,0 +1,2 @@
+- Hi, I’m Yasamin @yasamin-m
+- I’m an computer science and engineering major at UCI
